@@ -5,8 +5,4 @@ AI Video News Maker OTO: All AI Video News Maker OTO Links Here. There are 9 OTO
 
 [>>> Get ALL 9 AI Video News Maker OTOs Links Here](https://topproductreview.net/ai-video-news-maker-oto-upsell/)
 
-<picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://topproductreview.net/wp-content/uploads/2024/11/AI-Video-News-Maker-OTO.webp">
- <source media="(prefers-color-scheme: light)" srcset="https://topproductreview.net/wp-content/uploads/2024/11/AI-Video-News-Maker-OTO.webp">
- <img alt="AI Video News Maker OTO" src="https://topproductreview.net/wp-content/uploads/2024/11/AI-Video-News-Maker-OTO.webp">
-</picture>
+
