@@ -11,7 +11,7 @@ AI Video News Maker Is The World’s First Ai App That Creates Ultra-Realistic, 
 
 [>>> Get AI Video News Maker Here](https://warriorplus.com/o2/a/g1pzpl5/0)
 
-![AI Video News Maker OTO](https://github.com/user-attachments/assets/b856879b-f3d5-4d2d-8e3b-3e87e567404b)
+![AI Video News Maker OTO](https://github.com/user-attachments/assets/b856879b-f3d5-4d2d-8e3b-3e87e567404b)(https://warriorplus.com/o2/a/g1pzpl5/0)
 
 ## AI Video News Maker OTO - Features:
 
