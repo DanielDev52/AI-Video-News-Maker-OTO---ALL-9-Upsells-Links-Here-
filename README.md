@@ -105,7 +105,9 @@ Don’t worry we have exclusive detailed video training for you that shows all t
 Don’t worry we have exclusive detailed video training for you that shows all the required steps.
 
 **Is This Compatible On Both PC, Mac, Android And iOS?**
+
 It works on any device.
 
 **How Do I Lock-In My Discount?**
+
 Click the button below to get the AI Video News Maker at the lowest price...
